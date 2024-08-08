@@ -1,6 +1,6 @@
 🖥️Taller de Habilidades Cibernéticas 💾
 
-Integrantes:
+Integrantes  RELOAD:
 
 MY. JAVIER HIDALGO REALPE 
 
